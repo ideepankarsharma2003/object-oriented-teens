@@ -154,7 +154,7 @@ The future isn't just smarter AI—it's AI that actually remembers why you're ta
 
 ---
 
-**Explore wild analogies, deep dives, and tech memes at:** 👉 **objectorientedteens.com**
+**Explore wild analogies, deep dives, and tech memes at:** 👉 **[objectorientedteens.com](https://objectorientedteens.com)**
 
 *Have an AI memory horror story? Tag us — you might just be featured in our collection of tech disasters.*
 
